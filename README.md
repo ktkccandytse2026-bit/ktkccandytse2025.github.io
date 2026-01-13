@@ -1,1 +1,0 @@
-# ktkccandytse2025.github.io
